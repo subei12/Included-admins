@@ -21,4 +21,4 @@
 
 版权所有:wlkjyy  
 QQ:1478686138  
-收录于https://52u.top/  
+收录于http://jssl.axx820.cn
